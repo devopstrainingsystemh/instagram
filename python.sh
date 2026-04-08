@@ -5,6 +5,3 @@ what are doing
 man
 can u please tell me bro....
 
-Hello Welcome
-All
-
